@@ -1,14 +1,6 @@
-# 学术精灵
+防走失网址：https://github.com/vpn168/url
 
-https://www.stukry.com
-
-# 云骐网络
-
-https://www.yunkly.com
-
-# 天联学术
-
-https://www.tenacm.com
+请收藏防走失网址，在这里一定可以联系到我们！！！
 
 # 套餐说明：
 
